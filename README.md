@@ -10,6 +10,6 @@ We supply in-demand technological capabilities on-demand in order to meet your d
 
 We are the cloud heroes behind your platform. Let’s partner up today! 😺
 
-Truly yours from sunny Sarasota 🇺🇸,
+Truly yours from sunny Sarasota 🌴, 
 
 *Forward Force App Development Studio*
